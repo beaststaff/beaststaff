@@ -4,7 +4,7 @@
 </p>
 <p align="center">
    ‌ ‌ ‌
-hi im @netsu-ijou alt account
+hi im ian
 </p>
 
-<p align="center"> he/him i attend regiments woohoo yaayy yaayy </p>
+<p align="center"> he/him, i sit on phighting area </p>
