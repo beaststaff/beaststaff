@@ -1,13 +1,9 @@
 <p align="center"> i'll steal you flowers from the cemetery </p>
 <p align="center">
-   ‌ ‌ ‌
+‌
+<p align="center">
+@netsu-ijou EVIL TWIN don't mess. dark, fucked up version of @netsu-ijou haha. Just a glimpse into my dark reality. A full stare into my twisted perspective would make most simply go insane Imao....
 </p>
 <p align="center">
-   ‌ ‌ ‌
-hi im nero
+seriously though, claimed the name @vine-wrath the first 10 minutes her existence was confirmed LOL
 </p>
-
-<p align="center"> it they he i dont care about pronouns that much... i sit on phighting area i usually put my code in my name if i play phighting to feel free to join how do u write repositories</p>
-<p align="center"> i follow randoms dont be surprised... </p>
-<p align="center"> c+h sure i dont mind </p>
-<p align="center"> i will NOT tell u stuff about me figure it out yourself💜 </p>
