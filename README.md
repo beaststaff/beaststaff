@@ -9,5 +9,5 @@
 @netsu-ijou EVIL TWIN don't mess. dark, fucked up version of @netsu-ijou haha. Just a glimpse into my dark reality. A full stare into my twisted perspective would make most simply go insane Imao....
 </p>
 <p align="center">
-seriously though, claimed the name @vine-wrath the first 10 minutes her existence was confirmed
+Vinestaf glazer @Vinestaff i love vinestaff! Vine staf 500 health dps vine staff 200/0/0 sweep
 </p>
