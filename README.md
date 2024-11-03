@@ -6,7 +6,7 @@
 </p>
 ‌
 <p align="center">
-@netsu-ijou EVIL TWIN don't mess. dark, fucked up version of @netsu-ijou haha. Just a glimpse into my dark reality. A full stare into my twisted perspective would make most simply go insane Imao....
+@netsu-ijou EVIL TWIN don't mess. dark, fucked up version of @netsu-ijou haha. Just a glimpse into my dark reality. A full stare into my twisted perspective would make most simply go insane Imao.... I LOVE BEASTSTAF
 </p>
 <p align="center">
 Vinestaf glazer @Vinestaff i love vinestaff! Vine staf 500 health dps vine staff 200/0/0 sweep
