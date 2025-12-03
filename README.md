@@ -2,5 +2,5 @@
 <p align="center"> please, for me a little/ just think of yourself </p>
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=netsu-ijou&color=blue"
+<img src="https://komarev.com/ghpvc/?username=netsu-ijou&color=green"
 </p>
